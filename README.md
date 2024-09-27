@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zeydx86 (alsuliman zeyd)
+- 👋 Hi, I’m @zeydx86 (zeyd alsuliman)
 - 👀 I’m interested in physics/math
 - 🌱 I’m currently learning japanese language /adv math & phy
 - 💞️ I’m looking to collaborate on (nothing currentlt)
